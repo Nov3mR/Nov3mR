@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nov3mr
+- 👋 Hi, I’m Aadit
 - 👀 I’m interested in games
 - 🌱 I’m currently learning ...w
 - 💞️ I’m looking to collaborate on ...
